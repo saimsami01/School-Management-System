@@ -4,7 +4,7 @@
 >
 > ✅ One-Time Purchase
 >
-> ✅ Built for Pakistani Schools
+> ✅ Built for Schools
 >
 > ✅ Supports 200–300+ Active Students
 >
